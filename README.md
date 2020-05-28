@@ -1,1 +1,1 @@
-# prasanthi-paladugu.github.io
+# prasanthi.github.io
